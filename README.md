@@ -1,1 +1,1 @@
-# Szilágyi Dániel
+# orai-munka
